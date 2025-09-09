@@ -1,6 +1,5 @@
 
-Ingredients
-Units
+Ingredients for cholate chip cookies
 
     8 tablespoons of salted butter
     1/2 cup white sugar (I like to use raw cane sugar with a coarser texture)
